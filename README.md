@@ -1,1 +1,1 @@
-# Opa, eu sou o Bruno!! 🐒🤍
+# Opa, eu sou o Bruno!! oi 🐒🤍
